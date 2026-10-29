@@ -21,5 +21,5 @@ Entry-level **SOC Analyst / IT Support Specialist** with hands-on experience in 
 ---
 
 ## 📫 Connect With Me
-* **LinkedIn:** https://www.linkedin.com/public-profile/settings/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_self_edit_contact_info%3BjwDmuU9aTPq7QQjvXlzQXg%3D%3D
+* **LinkedIn:** [Victor Murithi](https://www.linkedin.com/in/victor-murithi-65295936b)
 * **Email:** victormurithi04@gmail.com
